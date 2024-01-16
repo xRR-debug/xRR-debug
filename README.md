@@ -1,7 +1,7 @@
 
-<h1 align="center">Halo pa4anbl
+<h1 align="center">hewwo
   
-  ![](https://media.tenor.com/Ahs_L7Xd1yAAAAAi/discord-discordgifemoji.gif) 
+  ![](https://media.tenor.com/hRtI1mPybf4AAAAi/senko-senko-chan.gif) 
   </h1>
  
  ![](https://count.getloli.com/get/@insage1337)
